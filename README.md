@@ -1,3 +1,8 @@
+### ❗❗❗CLONE THIS REPOSITORY BEFORE TAKING THE EXAM❗❗❗
+### ❗❗❗CLONE THIS REPOSITORY BEFORE TAKING THE EXAM❗❗❗
+### ❗❗❗CLONE THIS REPOSITORY BEFORE TAKING THE EXAM❗❗❗
+### ❗❗❗CLONE THIS REPOSITORY BEFORE TAKING THE EXAM❗❗❗
+---
 # Part 1: Essay
 ## 👉👉👉 [Essay Questions](https://heartwarming-walrus.static.domains/)
 
